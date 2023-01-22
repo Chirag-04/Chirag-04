@@ -1,5 +1,4 @@
-🌟Check out the new Piano Project in profile😎
-
+🌟Check out the new Online Piano Design Project in profile😎
 - 👋 Hi, I’m @Chirag-04
 - 👀 I’m interested in "PRO"GRAM"ING"
 - 🌱 I’m currently learning "DSA"
