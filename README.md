@@ -1,3 +1,4 @@
+![logo](https://github.com/Chirag-04/Chirag-04/blob/main/Black%20and%20Blue%20Trendy%20Gaming%20Youtube%20Banner%20(1).png)
 <h1 align="center">Hi 👋, I'm Chirag Maini</h1>
 <h3 align="center">A passionate full stack developer from India</h3>
 
