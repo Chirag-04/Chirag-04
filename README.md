@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **binarycoderz04@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17RZ7QsXPOuOB6xEF8-s_ZrGcTEXwauAC/view?usp=sharing](https://drive.google.com/file/d/17RZ7QsXPOuOB6xEF8-s_ZrGcTEXwauAC/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/15GJFPxU6d9Sao7yH8PeLMT2VhdUjFGoW/view?usp=drivesdk](https://drive.google.com/file/d/15GJFPxU6d9Sao7yH8PeLMT2VhdUjFGoW/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
